@@ -1,0 +1,1 @@
+# Simulatore-Royalty-da-Marchio
